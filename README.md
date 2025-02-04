@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @EnesArdic00
-- 👀 I’m interested in Basketball and video games
+- 👀 I’m interested in sports and video games
 - 🌱 I’m currently learning Pyhton
 
-- 📫 How to reach me ig:enesardcw
+- 📫 How to reach me enesardc00@gmail.com
 - 😄 Pronouns: he/him
   
 
